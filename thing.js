@@ -1,0 +1,1 @@
+//https://teachablemachine.withgoogle.com/models/tg0Tg7NZN9/ the things are good rock and peace
